@@ -7,7 +7,7 @@
 
 ## TO DO
 
-* Literally Nothing (This project isn't gonna ba any better than this)
+* Literally Nothing (This project isn't gonna be any better than this)
 
 
 #### © 2026 to Heat Death of the universe Franektoube INC. 
